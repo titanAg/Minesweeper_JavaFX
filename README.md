@@ -12,6 +12,7 @@
 ![2022-04-21_17h54_42](https://user-images.githubusercontent.com/97991414/164748801-dc523cac-9d59-4d4c-b389-7b1bcdb374e9.png)
 ![2022-04-21_17h54_49](https://user-images.githubusercontent.com/97991414/164748814-199bfcea-8820-4e8a-870d-33f831da231d.png)
 ![2022-04-21_17h54_59](https://user-images.githubusercontent.com/97991414/164748824-fd84ca1d-00a7-4986-9524-9865a11c995f.png)
+![image](https://user-images.githubusercontent.com/97991414/164750293-bdc23a6a-dce1-4946-83cd-fe31b1afa22b.png)
 
 
 ### Intermediate
